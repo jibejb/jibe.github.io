@@ -1,2 +1,2 @@
-# jibe.github.io
-dfgsfjdghkhf
+# jibejb.github.io
+jibejb's blog
